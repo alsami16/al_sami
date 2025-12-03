@@ -2,6 +2,7 @@
 ### Textile Engineering Student | Leadership & Creative Enthusiast
 
 📍 **Dhaka, Bangladesh** Phone: +880 1741443807
+
 📧 [alsamichy2004@gmail.com](mailto:alsamichy2004@gmail.com)  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/al-sami-chowdhury-93167b323/)
 
